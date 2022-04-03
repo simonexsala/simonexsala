@@ -1,2 +1,3 @@
-- Hi, I’m @simonexsala
-- I’m interested in art, music, philosophy, psychology and literature
+- I’m @simonexsala
+- A young boomer. Everyday that passes I hate technology more and more.
+- Embracing the mystical healing powers of art and all of the humanities.
